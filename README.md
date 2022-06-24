@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+We shall see the green again..  
+When?
+How will the fund come in to the crypto space again? 
